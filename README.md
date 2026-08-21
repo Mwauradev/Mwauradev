@@ -88,7 +88,7 @@ Currently building toward roles in:
 
 ## Contact
 
-[LinkedIn](YOUR-LINKEDIN-LINK)
+[LinkedIn](www.linkedin.com/in/samuel-mwaura-006704242)
 
 [Email](mwaurasamm9811@gmail.com)
 
